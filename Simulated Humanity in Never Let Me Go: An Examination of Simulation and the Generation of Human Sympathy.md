@@ -1,4 +1,4 @@
-## Simulated Humanity in Never Let Me Go:
+### Simulated Humanity in Never Let Me Go:
 ### An Examination of Simulation and the Generation of Human Sympathy
 
 “Poor creatures. What did we do to you? With all our schemes and plans?” asks Madame
