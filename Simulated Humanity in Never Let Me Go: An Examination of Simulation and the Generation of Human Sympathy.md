@@ -12,6 +12,7 @@ the power in labeling others. We watch as the clones simulate human behavior, sy
 one another, both eliciting and experiencing human emotions, and through this process, the
 clones exhibit an auto-genetic humanity within themselves which makes them no different from
 a human biologically born. <br>
+<br>
 Never Let Me Go is a memoir of the Other. It’s a culmination of the experiences of thirty-
 one-year-old Kathy H., a Hailsham-student-turned-Carer—a figure situated in one of the lowest
 societal positions in Ishiguro’s imagined counter-fiction. But why is it these students of Hailsham
