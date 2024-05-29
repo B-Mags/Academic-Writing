@@ -1,6 +1,6 @@
-### Simulated Humanity in Never Let Me Go:
-### An Examination of Simulation and the Generation of Human Sympathy
-
+**Simulated Humanity in Never Let Me Go:** <br>
+**An Examination of Simulation and the Generation of Human Sympathy** <br>
+ <br>
 “Poor creatures. What did we do to you? With all our schemes and plans?” asks Madame
 Marie-Claude mid-crisis-of-conscience in Kazuo Ishiguro’s Never Let Me Go (Ishiguro 254).
 The novel delivers us a dystopian late-nineties England characterized by a special brand of
